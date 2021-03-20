@@ -24,6 +24,7 @@ Not sure how to spend time on lockdown? This guide contains a range of different
 * [Writing](#writing)
 * [Start listening to Podcasts](#podcasts)
 * [Plan your next trip](#trips)
+* [Take a look at the past](#past)
 
 [!Note : Before you head outside](#note)
 
@@ -548,6 +549,18 @@ Do you want to explore Europe on a ship? There are many companies offering cruis
 offers a wide range of different cruise packages, from the Mediterranean to the Baltic sea. 
 
 ---
+
+## <a name="past"></a>Take a look at the past
+Quarantine days are a great opportunity for you to make a little stop in your life and look back. How did you get here? What people have you met along the way? What are the greatest stories that your life consists of so far?
+
+What a better way to do that than to gather with your family or close friends and spend an evening looking at photos and videos of the past. Spark storytellings of fogotten adventures, funny circumstances, emotional moments and all the stuff that bond you together. You will be surprised by all the little important details of memories that you have forgotten!
+
+### Ways to reflect on the past
+* Search old albums and photos with your parents. Ask them for a backstory for each of them and find interesting things about them!
+* Find old video tapes and watch old videos of you and your family. For example, you could watch yourself as a baby making your first steps!
+* Open newer photos and videos stored in your computer or your phone. We might have forgotten some memories stored there.
+* Search all the shared photos between you and a friend on the Messenger app. You can see how [here](https://www.facebook.com/help/messenger-app/566167593908940). 
+
 
 ## <a name="note"></a>!Note : Before you head outside
 1. *Be sure you wear a mask*
